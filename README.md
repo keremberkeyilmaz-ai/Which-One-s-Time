@@ -1,0 +1,1 @@
+3 sene önce arkadaşı kerem ile bir game jam etkinliğine katılan deniz, başarısızlık ve rezil olmak korkusuyla arkadaşını game jam etkinliğinde yanlız bırakır ve kerem ile denizin arası açılır. Deniz geçmişte yaptıgı hataları olağan zamanda,geç bile kalmış olsa düzeltmeye çalışır.
